@@ -1,1 +1,1 @@
-"Alan Saudabekov PP1_20BD" 
+Alan Saudabekov PP1_20BD
